@@ -1,1 +1,0 @@
-# tokenomeme.art
